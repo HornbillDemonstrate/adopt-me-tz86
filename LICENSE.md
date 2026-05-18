@@ -1,4 +1,4 @@
-#  
+#  Professionnel escape tsunami for brainrots scripts est le meilleur escape tsunami for brainrots scripts avec skins personnalisés et sans collision. Sécurisé, fiable et optimisé
 
 
 
